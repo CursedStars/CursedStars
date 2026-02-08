@@ -1,6 +1,6 @@
 <p align="center"> 
 
-<p align="center"> ' $\textcolor{rgb(141,78,124)}{\textsf{I just wanna see you shine 'cause I know you are a stargirl}}$ '
+<p align="center"> '$\textcolor{rgb(141,78,124)}{\textsf{I just wanna see you shine 'cause I know you are a stargirl}}$'
 
   ![](https://file.garden/aISt_zQ_QkPKQZx-/Me/CursedStars%20purple%20pink/Untitled193_20260207211444.png)
   
