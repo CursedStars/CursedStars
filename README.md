@@ -2,7 +2,7 @@
 
 <p align="center">  $\textcolor{rgb(141,78,124)}{\textsf{I just wanna see you shine 'cause I know you are a stargirl}}$ 
 
-  ![](https://file.garden/aISt_zQ_QkPKQZx-/Me/CursedStars%20purple%20pink/Untitled193_20260207211444.png) <p align="center"> [Fluffle](https://fluffle.cc/cursedstars) <p align="center"> [Spacehey](https://spacehey.com/shrimpyartist) <p align="center"> <img width="100" height="104" alt="gif" src="https://file.garden/aISt_zQ_QkPKQZx-/Me/CursedStars%20purple%20pink/02569e915d1011c617c3c18b6cfaf4bb%20(1).gif?v=1770525513671" /> ╰ [Strawpage](https://retrostarz.straw.page) ╯ <img width="100" height="104" alt="gif" src="https://file.garden/aISt_zQ_QkPKQZx-/Me/CursedStars%20purple%20pink/jujutsu-kaisen-kirara%20(1).gif?v=1770526358379" />
+  ![](https://file.garden/aISt_zQ_QkPKQZx-/Me/CursedStars%20purple%20pink/Untitled193_20260207211444.png) <p align="center"> [Fluffle](https://fluffle.cc/cursedstars) - [Spacehey](https://spacehey.com/shrimpyartist) <p align="center"> <img width="100" height="104" alt="gif" src="https://file.garden/aISt_zQ_QkPKQZx-/Me/CursedStars%20purple%20pink/02569e915d1011c617c3c18b6cfaf4bb%20(1).gif?v=1770525513671" /> ╰ [Strawpage](https://retrostarz.straw.page) ╯ <img width="100" height="104" alt="gif" src="https://file.garden/aISt_zQ_QkPKQZx-/Me/CursedStars%20purple%20pink/jujutsu-kaisen-kirara%20(1).gif?v=1770526358379" />
 
   
    ![](https://file.garden/aISt_zQ_QkPKQZx-/Me/CursedStars%20purple%20pink/Untitled193_20260207211444.png)
